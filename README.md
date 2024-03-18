@@ -1,0 +1,2 @@
+# Pertemuan_6_A2_PPBO_Defasya-zulsyifah-kanna
+Pertemuan_6_A2_PPBO_Defasya zulsyifah kanna
